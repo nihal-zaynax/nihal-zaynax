@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @nihal-zaynax
+- 👋 Hi, I’m Kazi Nihal Towfiq.
 - 👀 I’m interested in learning!
 - 🌱 Currently I’m learning everything!
