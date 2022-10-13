@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @nihal-zaynax
 - 👀 I’m interested in learning!
-- 🌱 I’m currently learning everything!
+- 🌱 Currently I’m learning everything!
